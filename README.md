@@ -1,1 +1,1 @@
-# thinleyCV.github.io
+# thinley1998.github.io
